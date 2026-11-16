@@ -1,7 +1,9 @@
 
 <p align="center">
- <br> <img width="736" height="736" alt="𝐌𝐫 𝐏𝐮𝐳𝐳𝐥𝐞𝐬 𝐱 𝐌𝐫 𝐖𝐏𝐍𝐙" src="https://github.com/user-attachments/assets/773cb23e-553c-4464-bde6-0c7ea754d36d" /><br> 
+ <br> <img width="735" height="545" alt="quiet please!" src="https://github.com/user-attachments/assets/03475880-9776-4823-a070-ed8a097b701a" /><br> 
                                    <p align="center">
-                                  <br> US YELLS<br>  <a href="https://github.com" target="_blank">@Jambalayah </a><br> 😍 😍 😍 😍<br> 
- 
+                                  <br> 𝗵𝗲𝘆 𝗵𝗲𝘆 𝗵𝗲𝘆 𝗟𝗼𝘃𝗲𝗿 !<br> <img width="735" height="508" alt="Quiet Please! Icon _ vivimeng(4)" src="https://github.com/user-attachments/assets/34be4668-b72b-4ee1-83fc-27aaa6c38207" /><br> 𝘆𝗼𝘂 𝗱𝗼𝗻'𝘁 𝗵𝗮𝘃𝗲 𝘁𝗼 𝗯𝗲 𝗮 𝘀𝘁𝗮𝗿 !<br> <img width="736" height="736" alt="𐔌 _ jeong mid eum" src="https://github.com/user-attachments/assets/30cb1bfe-808a-4e3a-95da-7a92860854b0" />
+
+
                                 
+
